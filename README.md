@@ -1,2 +1,0 @@
-# HalalHolidayWani
- The latest update
